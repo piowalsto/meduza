@@ -13,6 +13,7 @@ https://code.visualstudio.com/Download
 5. rfrfr
 6. rfrfrr
 
-koniec
+koniec  
 
+drugi motyw  
 
